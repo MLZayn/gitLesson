@@ -1,1 +1,1 @@
-READ ME my friendo
+DON`T READ ME MY FRIENDO
